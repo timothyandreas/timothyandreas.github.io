@@ -1,0 +1,8 @@
+---
+layout: post
+title: Ice Age Dawn of the Dinosaurs
+---
+
+Everyone must have gone through the same feeling of cuddling Manny and his friends in Ice Age’s previous preludes of ‘Ice Age: The Meltdown’ and ‘Ice Age 2: The Meltdown’. So get ready to go through the same experience as all of them are going to rock the screen with their new sequel ‘Ice Age: Dawn of the Dinosaurs’ on July 1, 2009.
+
+This Fox Production release will have the same characters with the plot moving smoothly to its next stage where Manny (Ray Romano), Sid (John Leguizamo), Diego (Denis Leary), Ellie (Queen Latifah), Eddie (Josh Peck), Crash (Seann William Scott) and Scrat (Chris Wedge) get to know more about the dinosaur population on Earth that has survived extinction. As usual, Crash and Eddie are up to their funny antics, while Manny and Ellie are enjoying their lovey-dovey romantic life getting ready to have their first baby. After seeing Manny and Ellie’s happy family life even Sid wants to start a one his own and in a fit of jealously steals dinosaur eggs. He is captured by the dinosaurs with his herd trying to save him. While all these adventure roller coasters are not enough, a one-eyed dinosaur named Buck (Simon Pegg) pops up in the middle. We will also get to witness a budding romance between Scrat and his new found love; Scratte. A complete full on entertainment with a perfect voice over casting and animations are a guarantee to a blockbuster.
